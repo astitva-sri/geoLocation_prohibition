@@ -28,4 +28,4 @@ Geolocation prohibition devices provide a cutting-edge solution to address the n
 
 ---
 
-For more information, visit our website or contact us at astitvasrivastava79@outlook.com
+For more information, contact us at astitvasrivastava79@outlook.com
